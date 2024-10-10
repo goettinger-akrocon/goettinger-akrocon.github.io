@@ -2,3 +2,6 @@ title: Göttinger Akrocon
 description: Die Göttinger Akrocon
 
 theme: jekyll-theme-minimal 
+
+plugins:
+  - "jekyll-github-metadata"
