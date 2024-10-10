@@ -5,3 +5,5 @@ theme: jekyll-theme-minimal
 
 plugins:
   - "jekyll-github-metadata"
+
+repository: goettinger-akrocon/goettinger-akrocon.github.io
