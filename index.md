@@ -1,13 +1,18 @@
-# Göttinger Akrocon 2024
+# Göttinger Akrocon 2025
 
-Die Göttinger Akrocon findet am 18.-20.10.2024 in Göttingen statt.
+Die Göttinger Akrocon findet am 22.-24.08.2025 in Göttingen statt.
 
 
 ## Termin und Ablauf
 
-Unsere dritte Göttinger Akrobatik Convention findet am 18.-20.10.2024 statt.
+Unsere vierte Göttinger Akrobatik Convention findet am 22.-24.08.2025 statt.
 
 Los geht es Freitag um 22 Uhr und das Ende ist am Sonntag ungefähr um 14:30 oder spätestens 15 Uhr. 
+
+## Anmeldung
+
+Das Anmeldesystem wird bald freigeschaltet. Wir werden etwa 100-150 Teilnehmer annehmen können. 
+Workshops sind gerne gesehen, wenn ihr etwas anbieten wollt, dann gebt das gerne bei der Anmeldung direkt mit an.
 
 ## Ort
 
