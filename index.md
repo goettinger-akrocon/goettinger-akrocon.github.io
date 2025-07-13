@@ -14,10 +14,12 @@ Los geht es Freitag um 22 Uhr und das Ende ist am Sonntag ungefähr um 14:30 ode
 
 ## Anmeldung
 
-Das Anmeldesystem wird bald freigeschaltet. Wir werden etwa 100-150 Teilnehmer annehmen können.
-Workshops sind gerne gesehen, wenn ihr etwas anbieten wollt, dann gebt das gerne bei der Anmeldung direkt mit an.
+Die Anmeldung ist unter [Acrocon2025](https://ticket.martinalex.de/goettinger-akrocon/akrocon2025/) möglich. 
+Die reguläre Anmeldung endet am Sonntag, den 13. Juli, danach ist eine Anmeldung über die Warteliste möglich.
+Workshops sind willkommen, wenn du einen anbieten möchtest, schreib das bitte bei deiner Anmeldung dazu.
 
-*The registration system will be available soon. We will be able to accommodate around 100–150 participants.*
+*The registration system is available at [Acrocon2025](https://ticket.martinalex.de/locale/set?locale=en&next=/goettinger-akrocon/akrocon2025/) and will stay open until July 13 or until we run out of spaces.
+We will be able to accommodate around 100–150 participants.*
 *Workshops are very welcome! If you’d like to offer one, please indicate it directly when you register.*
 
 ## Ort
