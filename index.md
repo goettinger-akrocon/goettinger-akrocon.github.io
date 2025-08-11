@@ -3,6 +3,42 @@
 Die Göttinger Akrocon findet am 22.-24.08.2025 in Göttingen statt.
 
 *The Göttingen Akrocon will take place from August 22–24, 2025 in Göttingen.*
+## Updates
+
+06.08.2025
+
+Hallo ihr Lieben, die Göttinger AkroCon steht bald vor der Tür. 
+Hier sind ein paar höchst aktuelle Infos für euch: 
+- Ort: Sporthalle des Felix-Klein Gymnasiums Göttingen. Böttingerstraße 17, 37073 Göttingen
+(https://maps.app.goo.gl/5mrHdTUBBsQQjFKZ9)
+- Beginn: Freitag 22.08. ab 20:30 Uhr
+- Ende: Sonntag 24.08. bis 16 Uhr.
+- Snacks (Äpfel, Bananen, Karotten), heißes Wasser, Tee und Kaffee werden gestellt, sonstiges Essen muss selbst mitgebracht werden.
+- Es wird Kühlschränke für mitgebrachtes Essen geben.
+- Einkaufsmöglichkeiten (für Lebensmittel) sind gut fußläufig zu erreichen 
+
+Bei Fragen meldet euch gerne jederzeit bei uns. 
+
+Wir freuen uns sehr auf euch und auf ein fantastisches, akrobatisches Wochenende 🥳
+
+Euer Göttinger AkroCon Team
+____________________________________________
+*Dear Acrobats,
+the Göttingen AkroCon is just around the corner.* 
+*Here is some very up-to-date information for you:*
+- *Venue: Sports hall of the Felix-Klein Gymnasium Göttingen. Böttingerstraße 17, 37073 Göttingen*
+- *Start: Friday 22 August, from 20:30 pm.*
+- *End: Sunday 24 August, until 4 pm.*
+- *Snacks (apples, bananas, carrots), hot water, tea and coffee will be provided, other food must be brought along.*
+- *There will be fridges for the food you bring with you.*
+- *Shopping facilities (for food) are within walking distance*
+
+*If you have any questions, please contact us at any time.*
+
+*We look forward to seeing you and to a fantastic, acrobatic weekend*🥳
+
+*Your Göttingen AkroCon Team*
+
 
 ## Termin und Ablauf
 
@@ -59,6 +95,12 @@ Für diesen Workshop musst du dich mit dem Klettern am Tuch wohl fühlen. Von do
 
 *Playing with Scorpion / Creature (Saturday)  
 In this workshop you need to be comfortable climbing the silk. From there we will start to built the creature, explore different movements and discover different ways to enter and exit the figure. We want to play with the creature and experiment with ways to include it in a choreography.*
+
+#### All the belays! (Samstag) Trainer: Anita
+Der Belay ist eine klassische und einfache Wicklung, aber die Einfachheit täuscht. Es gibt unzählige kreative Möglichkeiten, in den Belay hinein- oder wieder hinauszukommen, die alles andere als langweilig sind. In diesem Workshop sammeln wir gemeinsam verschiedene Ein- und Ausgänge. Ich zeige euch gerne einige meiner Lieblingsvariationen, freue mich aber genauso auf eure Ideen. Lasst uns gemeinsam Varianten ausprobieren und vielleicht sogar neue Wege in oder aus dem Belay finden!
+
+*All the belays (Saturday)  
+The Belay is a basic wrap. However, there a re numerous ways into and also out of belay that are anything but basic. Let us together collect a number of entries and exits to belay. I am happy to show some of my collection, but also happy to see variations from others or even create some more during the workshop.*
 
 #### Kreativität und Improvisation am Tuch – Erste Schritte (Sonntag). Trainer: Caro
 Zu improvisieren und sich kreativ am Tuch zu bewegen ist nicht nur hocherfahrenen Luftakrobat*innen vorbehalten – auch als Anfänger*in hast du viele Möglichkeiten, Ausdruck und verschiedene Bewegungsqualitäten in deine Praxis einzubauen.
