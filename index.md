@@ -43,10 +43,15 @@ the Göttingen AkroCon is just around the corner.*
 ## Termin und Ablauf
 
 Unsere vierte Göttinger Akrobatik Convention findet am 22.-24.08.2025 statt.  
-Los geht es Freitag um 22 Uhr und das Ende ist am Sonntag ungefähr um 14:30 oder spätestens 15 Uhr. 
+Los geht es Freitag um 20:30 Uhr. Wir bauen gemeinsam fertig auf und danach ist viel Zeit für freies Training. Damit müde Akrobaten schlafen können wird Freitag und Samstag abend zwischen 23 und 24 Uhr das Licht in der großen Halle ausgemacht, Nachteulen können aber in der kleinen Halle weiter fliegen.
+Samstag und Sonntag geht es jeweils um 09:30 mit einem gemeinsamen Aufwärmen los. Danach haben wir im Zeitplan 3 Workshoprunden (10:00-11:30, 14:30-16:00,17:00-18:00) am Samstag und 2 am Sonntag (10:00-11:30, 13:00-14:30) mit jeweils Platz für zwei Akrobatik Workshops, einem Tuchworkshop und einem Workshop der Kategorie "Anderes". Das genaue Programm wird in der Halle aushängen und zu Beginn der Zeitslots wird es immer eine kleine Demo/Erklärung der Trainer geben. Aktuell sind auch noch einzelne Slots frei, sodass ihr gerne spontan vor Ort noch Programm anbieten könnt. Zwischen den Workshops ist genug Zeit das gelernte noch mal zu üben, sich auszuruhen und Essen zu besorgen. Samstag Abend gegen 20:00 wird es zur Entspannung noch eine angeleitete Massage geben.
+Sonntag fangen wir ab 14:30 an abzubauen, wenn ihr alle mit anfasst sind wir ganz schnell fertig, um dann zwischen 15 und 16 Uhr die Halle zu verlassen. Wir freuen uns schon auf euch.
 
-*Our fourth Göttingen Acrobatics Convention will be held from August 22–24, 2025.*  
-*It will start on Friday at 10:00 PM and end on Sunday around 2:30 PM or by 3:00 PM at the latest.*
+
+*Our fourth Göttingen Acrobatics Convention will take place from August 22nd to 24th 2025.  
+It starts on Friday at 8:30 p.m. We will finish setting up together, and then there will be time for free training. The lights in the large hall will be turned off between 11 p.m. and midnight on Friday and Saturday evenings so that tired acrobats can sleep. Night owls can continue flying in the small room.
+Saturday and Sunday we will start at 9:30 a.m. with a joint warm-up. After that, we have 3 workshop rounds (10:00-11:30 a.m., 2:30-4:00 p.m., 5:00-6:00 p.m.) on Saturday and 2 on Sunday (10:00-11:30 a.m., 1:00-2:30 p.m.) with two acrobatics workshops, a silks workshop, and a workshop in the “Other” category in each slot. The exact program will be posted in the gym, and there will always be a short demo/explanation by the trainers at the beginning of each time slot. Currently, there are still some open slots, so you are welcome to spontanoeusly offer to teach fun tricks. Between workshops, there will be enough time to practice what you have learned, rest, and find something to eat. On Saturday evening around 8:00 p.m., there will be a guided massage for relaxation.
+On Sunday, we will start to clean up at 2:30 p.m. If everyone helps out, we will be done quickly and can leave the hall between 3:00 and 4:00 p.m. We look forward to seeing you there.*
 
 ## Anmeldung
 
